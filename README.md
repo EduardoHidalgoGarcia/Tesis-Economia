@@ -1,5 +1,3 @@
-Tesis Licenciatura en Economía
-
 Resúmen
 
 El clientelismo es un intercambio donde un político (patrón) da patronazgo (beneficios) a cambio del
